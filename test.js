@@ -1,1 +1,0 @@
-lam gi ke di
